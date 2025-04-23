@@ -1,4 +1,4 @@
-Integrantes:  equipo 9
+Integrantes:  grupo  9
 
 Juan Carlos Ramírez Chávez RC231487
 
